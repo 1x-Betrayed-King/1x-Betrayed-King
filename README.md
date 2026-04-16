@@ -1,4 +1,4 @@
-## not done yet! but Hai 🦈  
+## Names Axder / Seth / Light ; Hi 🦈  
 
 dni facts:
 
