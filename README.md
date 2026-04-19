@@ -1,9 +1,9 @@
 ## Names Axder / Seth / Light ; Hi welcome to My `Read.me`
-
+I luv my Fujii @flopj67  ♡
  
-dni facts:
+here some dni facts:
 
-- dni ppl who ships adults x minors
+- dni ppl who ships adults x minors get out plis💔
 - sensitive people  
 - people who don't understand sarcasm
 - people who are emotionaly immature
@@ -18,11 +18,11 @@ some of my information ;
 - names : Light / Axder , or other nicknames idm 
 - Age ; 15-16 years-old 
 - Height ; 1,79
-- Sexuality ; Gay . yes any problem?
+- Sexuality ;  he/them . yah
 - country ; Turkish . speaking a little Moldovan / Azerbaijan and Chinese . 
 - i relate to 1x,John doe,vox, Light or L lawiet,Sean,Andrew Garfield . and others ° 
 - i would adopt some kids on online if you guys accept my information . 
-- you can add me on tiktok . 
+- you can add me on tiktok . @vax3_.1ss <-on tt 
 
 - ### have a good time thx for reading this .
 
