@@ -1,5 +1,5 @@
 ## Names Axder / Seth / Light ; Hi welcome to My `Read.me`
-I luv my Fujii @flopj67  ♡
+I luv my oomf Fujii @flopj67 !! ^_^
  
 here some dni facts:
 
