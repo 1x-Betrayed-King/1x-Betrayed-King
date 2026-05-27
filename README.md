@@ -1,4 +1,4 @@
-## Names Axder / Cell / John  ; Hi welcome to My `Read.me`
+## Names Axder / Cell / John  ; Hi
 I luv my oomfs !! ^_^
  
 here some dni facts:
